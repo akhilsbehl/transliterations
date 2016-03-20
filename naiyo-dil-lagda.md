@@ -62,7 +62,7 @@ saamne yaar akhaan de tur gaye
 mainu laa gaye rog awalle  
 mainu nit udeekaan raiyaan ne  
 ona ja paigam na galle  
-*moolo de vich paambad balde*
+*moolo de vich paambad balde*  
 meri jindadi sek na jalle  
 main ta mahiyaa tere bajon  
 ghar chhod ke jangal malle  
